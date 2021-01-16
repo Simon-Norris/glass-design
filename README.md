@@ -1,1 +1,1 @@
-learnign glass design first step
+learning glass design first step
